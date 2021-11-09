@@ -1,9 +1,9 @@
 Hi, I'm Katie or *inkblotty* 🙂
 
-💻 Senior Engineer at GitHub on the Accessibility team
+💻   Senior Engineer at GitHub on the Accessibility team
 
-🏙️ Living in Chicago
+🏙️   Living in Chicago
 
-🌳 Growing my indoor garden
+🌳   Growing my indoor garden
 
-🐕 Hanging with my two dogs
+🐕   Hanging with my two dogs
